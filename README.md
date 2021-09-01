@@ -1,1 +1,1 @@
-# TutorialsAndExplainations
+# TutorialsAndExplanations
